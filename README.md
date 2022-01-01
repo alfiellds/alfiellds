@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alfiellds
+- 👀 I’m a student in full time education, currently studying Computer Science, Mathematics, Law & Photography at A-Level.
+- 📫 You can contact me via my email, hello@alfiellds.co.uk, or via Discord @ #Alfie#9999
